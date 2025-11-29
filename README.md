@@ -76,3 +76,8 @@ To help you get your feet wet and get you familiar with our contribution process
 ### License
 
 React is [MIT licensed](./LICENSE).
+
+## Exclusive Full Ownership Sale
+- One buyer only: Complete transfer of all rights.
+- Price: 20,000 USD + 4,000,000 EGP (full upfront).
+- Ready for use – no mods needed.
